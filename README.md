@@ -1,0 +1,2 @@
+# SIGED-certificado-primaria-autenticacion-VAGJ850220HMNRNV08
+VAGJ850220HMNRNV08
